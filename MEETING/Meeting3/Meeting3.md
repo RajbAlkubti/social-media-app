@@ -1,0 +1,2 @@
+This is the link to the teams meeting:
+https://universityoftripoli.sharepoint.com/sites/Team7/Shared%20Documents/General/Recordings/Meeting%20in%20General-20250619_182753-Meeting%20Recording.mp4?web=1&referrer=Teams.TEAMS-WEB&referrerScenario=MeetingChicletGetLink.view

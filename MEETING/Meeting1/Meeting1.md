@@ -1,0 +1,2 @@
+this is the link to the teams meeting:
+https://universityoftripoli.sharepoint.com/sites/Team7/Shared%20Documents/General/Recordings/Kick-off%20Meeting-20250429_202822-Meeting%20Recording.mp4?web=1&referrer=Teams.TEAMS-WEB&referrerScenario=MeetingChicletGetLink.view&referrer=Outlook.Web&referrerScenario=email-linkwithembed
